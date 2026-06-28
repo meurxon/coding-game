@@ -1,1 +1,1 @@
-https://meurxon.github.io/vstheme-game/ enjoy it
+https://meurxon.github.io/coding-game/ enjoy it
